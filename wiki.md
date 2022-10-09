@@ -1,6 +1,8 @@
 # University Of Washington Best Spots on Campus 
 ![](https://media.istockphoto.com/photos/aerial-photo-of-the-university-of-washington-picture-id981020140?k=20&m=981020140&s=612x612&w=0&h=5_b5nWljrJyruy_uymdo2m-8CmvOR1GOm_L1ke4MoZ0=)
 
+##### Source For The Photo: [*istock*](https://media.istockphoto.com/photos/aerial-photo-of-the-university-of-washington-picture-id981020140?k=20&m=981020140&s=612x612&w=0&h=5_b5nWljrJyruy_uymdo2m-8CmvOR1GOm_L1ke4MoZ0=)
+
 There are so many wonderful places to explore on campus. If I had to pick my top three though they would be **Allen Library, the Quad, and the HUB**. 
 
 
